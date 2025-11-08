@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-# Hello, I'm Mich 🔬🦜
+# Hello, I'm Mich 🦉🌿🦆🐦🦇🐦‍⬛
 
 Welcome to my profile! I am a Biologist passionate about **bird conservation** from a scientific and practical perspective.
 
